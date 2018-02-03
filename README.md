@@ -1,1 +1,1 @@
-# https-github.com-satyafly-https-github.com-satyafly.io
+https://satyafly-https-github.com
